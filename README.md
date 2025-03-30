@@ -1,2 +1,3 @@
 - 👋 Hi, I’m @funkyGalilei
-- 🌱 I’m currently learning all of AEROSPACE
+- 🌱 I have a Bacchelor's Degree in Aerospace Engineering
+- I am interested in a multitude of fields and like doing creative, goofy stuff :)
